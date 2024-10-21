@@ -36,6 +36,5 @@ Staying on top of the latest trends and technologies.
 Interested in discussing your project? Get in touch:
 * 📧 [hicham.benjelloun@coalesmose.com](mailto:hicham.benjelloun@coalesmose.com)
 * 💼 [My LinkedIn profile](https://www.linkedin.com/in/hichambenjelloun/)
+* 💼 [My Comet profile with professional references](https://app.comet.co/freelancer/profile/QBeXZ1gbyK?params=eyJhbm9ueW1pemUiOmZhbHNlLCJkZXNpZ25Nb2RlIjpmYWxzZSwicmVhZE9ubHkiOnRydWV9)
 * 💼 [My Malt profile](https://www.malt.fr/profile/hichambenjelloun?overview)
-
-> 🪑 Made with ❤️ from my chair
